@@ -8,416 +8,418 @@ Draft Zero: a screenwriting pocast
 ## Transcript
 
 **Chas Fisher:**  
-\[0:11\] Hi, i'm chas fisher and welcome to draft zero, a podcast where
-two as he filmmakers, try to work out what makes great screenplays
+\[0:11\] Hi, i'm Chas Fisher and welcome to Draft Zero, a podcast where
+two Aussie filmmakers, try to work out what makes great screenplays
 work.  
   
 **Stu Willis:**  
-\[0:13\] And i'm stu willis.  
+\[0:13\] And i'm Stu Willis.  
   
 \[0:21\] And in today's episode, the very final part of our epic,  
 tiring, exhaustive and exhausting look at sources of antagonism, we're
 talking about,  
-films that are versus audience to recap for those who for some reason,
-weren't listening to the previous four past, which you should probably
+films that are versus audience. To recap for those who for some reason,
+weren't listening to the previous four parts, which you should probably
 listen to.  
-Before we talk about this one, we talked about films that the central
-conflict was vs human versus human human. This is self human versus
+before we talk about this one, we talked about films that the central
+conflict was versus. Human versus human human versus self human versus
 nature and human versus systems.  
 On when we originally talked about this fifth mysterious episode that
 somehow we would possibly reach the promised land of part five, we
 originally calling it versus other,  
-as in will want to look at films that didn't seem tohave a central
+As in we will want to look at films that didn't seem to have a central
 source of antagonism.  
 But what we realised in this homework is for at least these kinds of
-films, and we're going to mourn,  
-detail and a bit about the specific thesis, because i don't think it's
-there is still our other films, but they're so out of the ballpark of
-narrative like stand wreckage that,  
-there's no point, really screenwriting polkas talking about stand back
-because it's video are basically.  
+films, and we're going into more,  
+detail about the specific thesis, because i don't think it's- - there is
+still- - are other films, but they're so out of the ballpark of
+narrative like Stan Brakhage that,  
+there's no point, really screenwriting podcast talking about Stan
+Brakhage because it's video art basically.  
   
 **Chas Fisher:**  
-\[1:40\] Well, let let's say what the films that were looking at.
-Because i think some of these air, arguably video out as well.  
+\[1:40\] Well, let let's say what the films that we are looking at.
+Because i think some of these are, arguably video art as well.  
   
 **Stu Willis:**  
-\[1:49\] You need to watch more video at man.  
+\[1:49\] You need to watch more video art man.  
   
 **Chas Fisher:**  
 \[1:52\] No, no, i don't.  
   
 **Stu Willis:**  
-\[1:55\] So tell me, jazz. What are these films that we're looking at?  
+\[1:55\] So tell me, Chas. What are these films that we're looking at?  
   
 **Chas Fisher:**  
-\[1:56\] No.  
-All right, so we're looking at this year's oceans.  
-Eight f for fake Sans Soleil this year's the second, which is an
-australian release.  
-And we'll talk more about that later, particularly whether overseas
+\[1:56\]  
+All right, so we're looking at this year's Oceans 8  
+F for Fake Sans Soleil this year's the second, which is an Australian
+release.  
+and we'll talk more about that later, particularly whether overseas
 viewers can watch it or not.  
 And we're finishing off strong with Forrest Gump.  
   
 **Stu Willis:**  
-\[2:21\] Finishing off with the mangga wet dream of Forrest Gump.  
-I think that's what you want something to say, people's, a bad i'm gay,
+\[2:21\] Finishing off with the mega wet dream of Forrest Gump.  
+I think that's what you wanted me to say, people's, a bad i'm gay,
 that's, that film, and we want to thank our patrons for making this
 episode of draft zero possible.  
   
 **Chas Fisher:**  
-\[2:26\] Yeah.  
+\[2:26\]  
   
-\[2:30\] Yeah.  
+\[2:30\]  
   
 **Stu Willis:**  
-\[2:36\] They help us to have more draft zero more often.  
+\[2:36\] They help us to have more Draft Zero more often.  
 But in the case of this episode, they also voted on the films that were
 going to look at, and Forrest Gump itself was a suggestion of one of our
-patrons, jewels and people voted it, and when we looked at it, it really
-nailed the thesis. So thanks to jules for the suggestion.  
-So if you also want to have more draft zero more often, or have a say or
+patrons, Jules and people voted it, and when we looked at it, it really
+nailed the thesis. So thanks to Jules for the suggestion.  
+So if you also want to have more Draft Zero more often, or have a say or
 the illusion of a say.  
   
 **Chas Fisher:**  
-\[3:03\] Yeah.  
+\[3:03\]  
   
 **Stu Willis:**  
-\[3:04\] The delusion of a say. Please feel free to follow the links to
-our patron, the national notes.  
+\[3:04\] or the delusion of a say. Please feel free to follow the links
+to our patron, in our show notes.  
 And now we can begin.  
   
 **Chas Fisher:**  
-\[3:12\] Yeah, yeah, god, we for the first time ever, we got a timer
-running, and i think it's just going to end up scaring me to look at.
+\[3:12\] Yeah, yeah, good, for the first time ever, we got a timer
+running, and I think it's just going to end up scaring me to look at.
 We'll start developing a twitch.  
-So you have here that you'd like to actually start with your learnings,
-or our landings are supposed to do it one after another from the siri's
+So you have here that you'd like to actually start with your learning's,
+or our learning's as opposed if do it one after another from the series
 thus far.  
-And hopefully lead to some kind of species that we can take into these
+And hopefully lead to some kind of thesis that we can take into these
 films.  
   
 **Stu Willis:**  
-\[3:39\] Yes and this will also tying to what we mean by versus audience
-having listened to our key learnings over all the previous four episodes
-we kind of claim to the conclusion,  
-by the end of part for that the antagonistic forces i'm going to talk
-about what that word itself soon,  
-that these forces of conflict forces of whatever you wanna call them
+\[3:39\] Yes and this will also tie into what we mean by versus audience
+having listened to our key learning's over all the previous four
+episodes we kind of came to the conclusion,  
+by the end of part four that the antagonistic forces i'm going to talk
+about that word itself soon,  
+that these forces of conflict forces of whatever you want to call them
 that these forces pressure the protagonist to make,  
 decisions to make a final decision and i want to take that a step
 further and i think there's two ways you can look at the question which
-is that these sources off antagonism all stand from a kind of.  
+is that these sources of antagonism all stand from a kind of  
   
-\[4:22\] A patent of off conflict and that's what we mean by human
-versus human or human versus self it's like that is the source of the
+\[4:22\] a pate**rn** of conflict and that's what we mean by human
+versus human or human versus self. It's like that is the source of the
 conflict and that leads them to make their final choice or i think
-there's the flipside of that which is the sources of pressure,  
+there's the flip-side of that which is the sources of pressure,  
 lead the character to make a choice about,  
-the central source of conflict so in the case of shame his choices
+the central source of conflict. So in the case of Shame his choices are
 ultimately about himself that the sources of pressure which includes his
 sister are actually about him,  
 coming to in dealing with his sex addition whereas in systems which we
 talked about the choices that ultimately the characters were pressured
-into are you coming to the system escaping the system, destroying the
+into i.e the coming to the system escaping the system, destroying the
 system or overthrowing it which is the same kind of thing,  
 and so i think that's kind of the structure of all these films.  
 What i think is interesting about all these films that we're talking
-about is the central source of conflict is well between the film and the
-audience.  
-And that there are pressures within the film that make you audience make
-choices. Or at least ask questions in a way that i don't think these
+about is the central source of conflict is- - well between the film and
+the audience.  
+And that there are pressures within the film that make the audience make
+choices or at least ask questions in a way that i don't think these
 other films do.  
-That's actually kind of my central thesis, because i think that idea of
-pressure, the character to make choices is true. Whether you're talking
-about some kind of seen level, a sequence level and act level or over
-the whole film.  
+That's actually kind of my central thesis, because **I** think that idea
+of pressuring, the character to make choices is true. Whether you're
+talking about some kind of scene level, a sequence level and act level
+or over the whole film.  
   
 **Chas Fisher:**  
-\[5:39\] While i've been, you know, editing a lot of these episodes,
-i've been compiling my list of questions that i want to apply to my own
-work as i go, so using them as craft tools, so,  
-i'll quickly throw those out there, and then we can leap into into
-matt's question.  
-So, you know, i think your summary is perfect, i think it's some
-summarize all my points, my points, my questions of my own work, mohr
-about delving into that so,  
-right at the very beginning, i kind of started in with the want versus
-need that drew one of our patrons,  
-comment slash criticism earlier, but i do think there's a difference
+\[5:39\] While I've been, you know, editing a lot of these episodes,
+I've been compiling my list of questions that i want to apply to my own
+work as I go, so using them as craft tools, so,  
+I'll quickly throw those out there, and then we can leap into into
+Matt's question.  
+So, you know, I think your summary is perfect, I think it summarizes all
+my points, my points- -, my questions of my own work, are more about
+delving into that so,  
+right at the very beginning, I kind of started in with the "want"versus
+"need" that drew one of our patreons,  
+comments slash criticism earlier, but i do think there's a difference
 between if your protagonist has stated goals and obstacles that are in
 between,  
 the character and those goals.  
-So i think that was a very clearly plot antagonise, and they're they're
-getting in the way of what the protagonist wants now,  
-you know, for all the issues with want versus need, i think there's
-definitely,  
-a difference between a want that the character is aware ofthe a want or
-need that the character doesn't know that they, you know, want or need
-certain or at the beginning.  
+So i think those are clearly plot antagonists, and they're getting in
+the way of what the protagonist wants. Now,  
+you know, for all the issues with "want" versus "need", **I** think
+there's definitely,  
+a difference between a "want" that the character is aware of and a
+"want" or "need" that the character doesn't know that they, you know,
+want or need certain or at the beginning of the story.  
   
 **Stu Willis:**  
-\[6:52\] A cz we talked about the need is something that the rider is
-imposing on the character, rather than the character themselves. Being
-self aware off.  
+\[6:52\] As we talked about the need is something that the rider is
+imposing on the character, rather than the character themselves being
+self aware of.  
   
 **Chas Fisher:**  
-\[7:00\] And then i've got the question how did the antagonistic forces
+\[7:00\] And then I've got the question how did the antagonistic forces
 pressure the character to change and those are often,  
-as you've used the word like enabler zor pullers they're they're not
+as you've used the word like enablers pullers there they're not
 necessarily obstacles and they're not in the way of a goal that as you
 say there,  
 they're forcing change on the character because that's what the writer
 wants to take the character,  
-i've got what pressures are negatively or positively forcing your
+I've got what pressures are negatively or positively forcing your
 character to make choices that they would not otherwise have made,  
 and i think that's really kind of how,  
-i came to the realization i kind of remember which episode it's in but
-has gotten stronger every with each episode that we've done that really
+**I** came to the realization I can't remember which episode it's in but
+it has gotten stronger with each episode that we've done that really
 what i now look at the protagonists and the protagonist's journey as
 this kind of i know.  
   
-\[7:50\] Bit of rock and the it's the antagonistic forces that chip away
-at the rock and reveal it it's not that the protagonist is going around
-doing things it's the sources of antagonism that air sculpting the
-protagonist sculpting the choice is,  
+\[7:50\] bit of rock and the it's the antagonistic forces that chip away
+at the rock and reveal it. It's not that the protagonist is going around
+doing things it's the sources of antagonism that are sculpting the
+protagonist sculpting the choices,  
 sculpting the journey on the plot,  
-i've got the question how do your aunt had antagonistic forces mirror
-your protagonist wants or needs and.  
+I've got the question how do your antagonistic forces mirror your
+protagonist wants or needs? And  
   
-\[8:13\] My clearest example of that was the choice of the wolves from
-the gray what is at stake if your protagonist fails?  
-I mean these are some obvious one o one screenwriting questions but you
-and i i feel like we've revisited these screenwriting basics and tenants
-through the this idea of antagonism because the stakes are pressure,  
+\[8:13\] my clearest example of that was the choice of the wolves from
+the Gray. What is at stake if your protagonist fails?  
+I mean these are some obvious one-o-one screenwriting questions but you
+and i- - i feel like we've revisited these screenwriting basics and
+tenets through the this idea of antagonism because the stakes are
+pressure,  
 the stakes are, you know, driving the decision.  
-What decision do you want your protagonist to make it the end of the
-film and how the antagonistic forces pressured the antagonised to get to
+What decision do you want your protagonist to make at the end of the
+film and how the antagonistic forces pressure the antagonist to get to
 this point from the beginning of the film?  
 I mean, when we did systems, i still marvel at how that the lobster took
 a character to a point where it makes perfect sense.  
-Is that at the end of the movie he's sitting he's, standing in a
-bathroom, considering cutting his eyes out with a steak knife, and it
-makes perfect sense because the forces of antagonism have built it that
-way.  
+that at the end of the movie he's sitting he's, standing in a bathroom,
+considering cutting his eyes out with a steak knife, and it makes
+perfect sense because the forces of antagonism have built it that way.  
   
-\[9:11\] I've got the questions. Are your antagonistic forces centeon?
-Can they be bargained with? Do they have wants or needs that khun b
+\[9:11\] I've got the question are your antagonistic forces sentient?
+Can they be bargained with? Do they have wants or needs that can be
 met?  
 What tactics does your protagonist use or learn or attempt in order to
 overcome the antagonistic forces?  
 What tactics are completely unavailable to your protagonist because of
-the antagonistic forces being sent ian or non sentence on a kind of
-extension of that is how defeat a ble are antagonistic forces?  
-Is your protagonist even aware of thumb in the same way that the
-characters in mud bound aren't aware of racism or white supremacy as a
+the antagonistic forces being sentient or non sentient and a kind of
+extension of that is how defeatable are antagonistic forces?  
+Is your protagonist even aware of them in the same way that the
+characters in Mud Bound aren't aware of racism or white supremacy as a
 system?  
 They're not making their decisions in relation to furthering white
 supremacy or trying to overthrow it?  
   
 **Stu Willis:**  
-\[9:53\] It's. Sort of it's. Not a conscious conspiracy. Except in many
-cases, it wass.  
+\[9:53\] It's sort of it's not a conscious conspiracy. Except in many
+cases, it was.  
   
 **Chas Fisher:**  
 \[9:56\] Yes, within that story, but it wasn't like it wasn't part of
-the character's consciousness. If that makes sense, is your protagonist
+the character's consciousness if that makes sense, is your protagonist
 trying to overthrow them, enforce them, or just abide by them?  
-Does your and tag it? Does your protagonist ever hope to defeat the
-antagonistic forces, or does she just want to survive thumb or give
-up?  
-As was the case with our man in all, is lost.  
+Does your antagn-? Does your protagonist ever hope to defeat the
+antagonistic forces, or does she just want to survive them or give up?  
+As was the case with our man in All, is Lost.  
   
 **Stu Willis:**  
 \[10:22\] I think you should take these notes and send them out to her
-patrons. And then you.  
+patreons. And then you.  
   
 **Chas Fisher:**  
-\[10:27\] All right, which only cost them a dollar. An episode.  
+\[10:27\] All right, which only cost them a dollar an episode.  
   
 **Stu Willis:**  
-\[10:31\] Go out and feels like we're actually demonstrating. This is
+\[10:31\] God that feels like I'm- -we're actually demonstrating versus
 audience antagonism right now,  
-because there's a few observations i want to make about what you're
+because there's a few observations **I** want to make about what you're
 saying, i think that's a great summary overall, but i think there's a
-few things because it's, how does this relate to our specific topping
-now of films that there there is a conflict between the film and the
+few things because it's, how does this relate to our specific topic now
+of films that there there is a conflict between the film and the
 audience?  
 And i think there's two things, which is you talked about, which is
-pressure, and i realized that we never specifically talked about the
+pressure, and I realized that we never specifically talked about the
 idea that time itself is a form of pressure on characters.  
 We often talk about ticking clocks, and really, the ticking clock is
 about increasing the pressure on characters, and we know it's in many
-ways. That's. What game shows are about you pressure you put them under
-a ticking clock to make people make choices.  
-We do it to ourselves thirty seconds, and we you could decide what your
-eight you know, where is if we give ourselves all day to decide what
-were then we all often make, you know, take out time.  
+ways that's what game shows are about you pressure you put them under a
+ticking clock to make people make choices.  
+We do it to ourselves thirty seconds, and we- -you could decide what
+your eat you know, whereas if we give ourselves all day to decide what
+we eat then we all often make, you know, take out time.  
   
 **Chas Fisher:**  
-\[11:53\] Mm hmm.  
+\[11:53\] Better choices.  
   
 \[12:08\] Ah\!  
   
 \[12:18\] Yeah.  
   
 **Stu Willis:**  
-\[12:21\] Because he gets to weigh too much air time is that he's in
-terms of airing his grievances,  
+\[12:21\] because he gets way too much air time as goes in terms of
+airing his grievances,  
 so he made two observations one which is what what makes you think
-antagonism is about making characters change and i thought about it and
+antagonism is about making characters change? And i thought about it and
 i'm like,  
 that's actually the whole point that's what an obstacle does that
 character has a goal and if there was no obstacle in the way that is
-going to take the gold i don't have to change they don't have to make
-any choices even if the changes i'm going to step around his rock that
-is in my path from,  
+going to take the goal they don't have to change they don't have to make
+any choices even if the change **is** I'm going to step around his rock
+that is in my path from,  
 you know continue on the path that is actually forcing them to change on
-a little level and we talked about a lot about the tactics about really
-min ute,  
+a little level and we talked about a lot about in the tactics about
+really minute,  
 changes but i think ultimately that's what obstacles are they force you
 they're forcing the characters to change like it's actually inevitable
-and i think a good example of that which i've actually recently sided
-somewhere else and i love my star wars examples isn't,  
-this kind of relates to the whole sequence structure thing is the first
-kind of act of star wars is the pressure on luke the forces him to
-make,  
-the choice to go off with obi wan destroyed we talked about the heroes
-choice at the end these binary choices but films of full of choices and
-decisions for the characters and the the all the pressure that leads to
-including like the killing of,  
-uncle owen and aunt beru and obi wan and all that stuff leads to loot
-agreeing to go off on a crazy adventure with everyone right so that is
+and i think a good example of that which I've actually recently cited
+somewhere else and I love my Star Wars examples is in the,  
+and this kind of relates to the whole sequence structure thing is the
+first kind of act of Star Wars is the pressure on Luke that forces him
+to make,  
+the choice to go off with Obi Wan. Theses choices we talked about the
+heroes choice at the end these binary choices but films of full of
+choices and decisions for the characters and the the all the pressure
+that it leads to including like the killing of,  
+uncle Owen and aunt Beru and Obi Wan and all that stuff leads to Luke
+agreeing to go off on a crazy adventure with Obi Wan right so that is
 kind of orchestrated to making that choice so i think that think those
 kinds of decisions active throughout the film.  
   
-\[13:49\] Mats broader issue is with our use of the word antagonised he
-thought it was too imprecise and for the kind of that he said what we
-were doing which i liked was the taxonomy of conflict um.  
+\[13:49\] Matt's broader issue is with our use of the word antagonist he
+thought it was too imprecise and for the kind of that- - he said what we
+were doing which I liked was the taxonomy of conflict.  
   
-\[14:01\] But i think he suggested that something describing something
-is having an active hostility was a really useful way of thinking about
-it and i agree in this relate specifics d episode which is there are
-things that are kind of.  
+\[14:01\] But I think he suggested that something describing something
+as having an active hostility was a really useful way of thinking about
+it and I agree and this relates specific **to** this episode which is
+there are things that are kind of.  
   
-\[14:15\] Okay i can sit down and watch a foreign language film without
-subtitles and the film is impenetrable to me because i don't speak any
-languages other than english on i don't even do that very well
+\[14:15\] Okay I can sit down and watch a foreign language film without
+subtitles and the film is impenetrable to me because I don't speak any
+languages other than English and I don't even do that very well
 clearly.  
   
 \[14:28\] So the film is impenetrable to me but it's not doing it in an
-active way where is to use an extreme like,  
-a lot of evan god cinema or even like david lynch's stuff,  
+active way whereas to use an extreme like,  
+a lot of Evan god cinema or even like David lynch's stuff,  
 can be designed in such a way to be actively hostile to the audience
 understanding it,  
-and this comes to my time thing because i actually say they're two
-fundamentals to a movie which is one time film unfolds over time and i
+and this comes to my time thing because i actually say there are two
+fundamentals to a movie which is one time film unfolds over time and I
 think even there is video art that exists on loops and stuff like that
-and that's. Where it's getting outside of the boundaries of what?
-Where?  
-Talking about whether it's a ten hour series, right, fifty hour, five
-season show or a one hour, five minutes short.  
-They're all its time based and to the goal, then, is to get to the end
-off home. You know, they carried to go.  
+and that's. Where it's getting outside of the boundaries of what we
+are  
+talking about whether it's a ten hour series, or, fifty hour, five
+season show or a one hour, five minutes shot.  
+they're all- - it's time based and two the goal, then, is to get to the
+end of the film. You know, the character goal.  
 And so films that are, and ideally having a meaningful experience of
-films that actively challenged the unfolding of the narratives in such a
-way that you can get to the end of the film, knowing what it means, kind
-of actively hostile to the audience.  
-If you get a film where people like i don't get it, you know, like a
-memento, that film is actively hostile to the audience.  
-And i think all these films that we're talking about now, they're going
-to be actively hostile, hostile in various degrees to the audience, not
+films that actively challenge the unfolding of the narrative in such a
+way that you can get to the end of the film, knowing what it means, are
+kind of actively hostile to the audience.  
+If you get a film where people are like **I** don't get it, you know,
+like Memento, that film is actively hostile to the audience.  
+And i think all these films that we're talking about now, are going to
+be actively hostile, hostile in various degrees to the audience, not
 just have active hostility between characters or between themselves.  
   
 **Chas Fisher:**  
-\[15:48\] What i what i appreciate about what you're doing here is tying
+\[15:48\] What I what I appreciate about what you're doing here is tying
 it back to the films and laying some good groundwork for us talking
 about how we think these films are quite unquote versus audience but i
-just wantto,  
-i completely agree with matt's point of view that we're doing it
-taxonomy of conflict and you know i'm happy to take his point that maybe
-our use of antagonised or antagonistic forces is not,  
-it doesn't work for him but i do think it is useful in,  
+just want to,  
+I completely agree with Matt's point of view that we're doing a taxonomy
+of conflict and you know I'm happy to take his point that maybe our use
+of antagonist or antagonistic forces is not,  
+doesn't work for him but i do think it is useful in,  
 for me as a writer and then also in any kind of development context
 where,  
-there's a scene in shame or it's a sequence that we talked about was one
+there's a scene in Shame or it's a sequence that we talked about was one
 of my favorite sequences in the in the film where he's trying to develop
-an intimate personal relationship with a coworker on dh,  
-he takes it to a hotel room he's a sex addict she wants to have sex with
-him he's getting everything that he wants their developing a personal
-intimate relationship and yet his,  
-obstacle his addiction his fear of intimacy what whatever it is
+an intimate personal relationship with a coworker and,  
+he takes her to a hotel room he's a sex addict she wants to have sex
+with him he's getting everything that he wants they are developing a
+personal intimate relationship and yet his,  
+obstacle his addiction his fear of intimacy with whatever it is
 himself,  
-gets in the way of it there was no obstacle.  
+gets in the way of it there was no obstacle there.  
   
-\[16:58\] There there was only a person trying to reach him and go along
-with him and i mean way kind of posit the view that the obstacle was
-himself but to me if i'm ever in a,  
-in a development meeting or even with myself i could go well this scene
-does have an antagonised.  
-It does have, ah, a source of conflict.  
-She is an antagonised in that she is, you know, representing everything
+\[16:58\] There was only a person trying to reach him and go along with
+him and I mean we kind of posit the view that the obstacle was himself
+but to me if i'm ever in a,  
+in a development meeting or even with myself I can go well this scene
+does have an antagonist.  
+It does have, a, a source of conflict.  
+She is an antagonist in that she is, you know, representing everything
 he needs and can't have.  
-And to me, it it works for me to use the term antagonised in, you know,
+And to me, it it works for me to use the term antagonist in, you know,
 outside of just a villain or an obstacle.  
   
 **Stu Willis:**  
-\[17:37\] Yeah, i think people confuse which we've talked about
-antagonised with villain and self including once upon a time they use
-the words interchangeably,  
-and then often not the same i think the other reason to defend our use
-of it is that and tag and i really liked the phrase active hostility i
+\[17:37\] Yeah, I think people confuse which we've talked about
+antagonist with villain and self including once upon a time they use the
+words interchangeably,  
+and then often not the same. I think the other reason to defend our use
+of it is that antag- - and I really like the phrase active hostility I
 actually think that's a really,  
 good term of reference is this actively hostile?  
-You know maybe needs to be more active in it's all maybe it needs to be
-more hostile in terms of what it's doing but i think the idea is that,  
-just because the nature of the way we speak about script antagonism orin
-antagonised implies a relationship with the protagonist and often what
+You know maybe it needs to be more active in it's or maybe it needs to
+be more hostile in terms of what it's doing but i think the idea is
+that,  
+just because the nature of the way we speak about script antagonism or
+an antagonist implies a relationship with the protagonist and often what
 we're talking about as we talked.  
   
-\[18:18\] We're talking about the relationship between them protagonists
+\[18:18\] We're talking about the relationship between a protagonists
 and a source of conflict we're talking about the relationship between
-john anderton and pre crime we're talking about the relationship between
-brandon any sex addiction we're talking about the relationship
+John Anderton and pre crime we're talking about the relationship between
+Brandon and his sex addiction we're talking about the relationship
 between,  
-john mcclane and hans gruber you know it implies a relationship and
-therefore i think it is in this case we're actually saying that there is
-a relationship in more complex relationship between the audience,  
-and the film itself and that and that he's active and intentional
-conflict between the audience in the film itself in all of these films
-that it falls on a spectrum which is why we're starting with oceans
-eight because i don't think it's deliberately trying to alienate you,  
-and we're ending with Forrest Gump exciting thing for us comes trying to
-alienate you either but in the middle kind of fights and selena even in
-this second old various degrees and trying to make,  
-i really did it quickly towards the ordinance.  
+John McClane and Hans Gruber you know it implies a relationship and
+therefore I think it is in this case we're actually saying that there is
+a relationship a more complex relationship between the audience,  
+and the film itself and that and then he's active an intentional
+conflict between the audience and the film itself in all of these films.
+It falls on a spectrum which is why we're starting with Oceans Eight
+because i don't think it's deliberately trying to alienate you,  
+and we're ending with Forrest Gump because I don't think Forrest Gump is
+trying to alienate you either but in the middle kind of F For Fake even
+in this second or to various degrees and trying to make,  
+a little bit quickly towards the audience.  
   
-\[19:13\] You know and whether and because it's the end because what
-we've been talking about antagonised scan be sequence based or act based
+\[19:13\] You know and whether- - and because if the- -and because what
+we've been talking about antagonistss can be sequence based or act based
 that you might want a film that is,  
-Sans Soleil off it is five and i'm kind of getting out learnings at the
-beginning but i think it's worth saying because i know we had a listener
-paul he was like,  
-that sounds would be in our house shit and it's like shit but you know,
-you know odd how swank for may i want to write comedies and sansa is
-like, well yeah, you don't have to do a whole film like one of those but
-you could do a sequence like it you could do a sing like it.  
+Sans Soleil of it is- - and I'm kind of getting our learning's at the
+beginning but i think it's worth saying because I know we had a listener
+Paul he was like,  
+"this sounds a little bit Odd House shit" and it's like shit but you
+know, you know Odd House weren't for me **I** want to write comedies and
+so I was like, "well yeah, you don't have to do a whole film like one of
+those but you could do a sequence like it you could do a scene like
+it".  
   
-\[19:48\] You know that you can take one of those ideas and go won't it
-be interesting if the film at this moment the film was actually tow make
-the film interesting at this point we actually playing in a particular
-way and as well talk about emotions ate the easiest way,  
+\[19:48\] You know that you can take one of those ideas and go "won't it
+be interesting if the film at this moment the film was actually to-
+-make the film interesting at this point we actually playing in a
+particular way and as we'll talk about in Ocean's Eight the easiest
+way,  
 is to put the audience in a position where we're behind the characters
 we know less than the film.  
 The film is deliberately withholding information and coming back to my
 thesis that the goal is to finish a film feeling like it's, a worthwhile
 experience.  
-If you don't understand, what's happened to the end, then you feel you
-want to know. You want to pick up the clues and feel like you've gone on
-a journey.  
-So this is me trying to transition into ocean's eight. I mean, i've
-looked at the clock down it's fifty five minutes, so we've obviously had
-a really long introduction.  
+You don't understand, what happened at the end, then you feel "you want
+to know you want to pick up the clues and feel like you've gone on a
+journey.  
+So this is me trying to transition into Ocean's Eight. I mean, I've
+looked at the clock now it's 55 minutes, so we've obviously had a really
+long introduction.  
   
 **Chas Fisher:**  
 \[21:12\] What i like about this topic is that we didn't as you said at
@@ -426,102 +428,102 @@ looking for versus audience films we watched we deliberately set out to
 pick films that were less narrative based because we wanted to see
 how,  
 conflicts or antagonistic forces worked within you know less narrative
-based film see if we could learn anything to then take back to our own
-writing and it was only after watching F for Fake and Sans Soleil,  
-that i think you and i both got the firm idea that if you take out all
+based films see if we could learn anything to then take back to our own
+writing and it was only after watching F For Fake and Sans Soleil,  
+that I think you and I both got the firm idea that if you take out all
 sources of narrative conflict,  
 then you don't necessarily have narrative on a grand scale,  
 what is left to keep you engaged and it was clearly then as you said
-developing a relationship between the film and the audience now oceans
-eight is clearly not in the same leagues of doing this,  
-in terms of Sans Soleil and f for fake but.  
+developing a relationship between the film and the audience now Ocean's
+Eight is clearly not in the same leagues of doing this,  
+in terms of Sans Soleil and F For Fake but.  
   
 \[22:19\] I think it made some really interesting decisions from a
 narrative structure point of view and from a character point of view
-that unusual and i think they fit this mold because they,  
-let the audience the enjoyment from the film.  
+that unusual and I think they fit this mold because they,  
+let the audience- - the enjoyment from the film.  
 What compels you to keep watching the film is the audiences relationship
 with the film less than with,  
-what's gonna happen next which might be plot driven or what's going to
-happen to those characters you know out of concern or where they're
-going to end up is that fair.  
+what's going to happen next which might be plot driven or what's going
+to happen to those characters you know out of concern or where they're
+going to end up is that fair?  
   
 **Stu Willis:**  
-\[22:55\] Yes i mean i think on one level,  
-jamari implies relationship part of you know thwarting expectations of
-john ra is the film itself understanding how you,  
-process its structure you know or getting into it and i think ocean's
-eight being heist film is absolutely about that there is a hole there's
-a long history of heist films and,  
-what ways they doing don't thwart our expectations of the genre which is
-kind of like on a macro level so before we go into it,  
-too far we should probably summarize what oceans ideas,  
-ocean's eight is kind of a spiritual sequel to obviously the ocean's not
-obviously may or may not be obvious is a spiritual siegel sequel to the
-ocean's film but it's a all,  
-all female ensemble cast and it follows debbie ocean who's the younger
-sister off the apparently late danny ocean who's the george coining
-carriage in other films and her former partner in crime wu and their
-plan is to steal,  
-some jewelry from the mit dollar,  
-that it ends in that's kind of more or less the goal with stated very
-early on this is going to be his great crime,  
-and they're gonna be putting together a crack team and eighteen,  
-off people to go and steal this diamond that's the goal that were told
+\[22:55\] Yes I mean I think on one level,  
+genre implies relationship part of you know thwarting expectations of
+genre is the film itself understanding how you,  
+process its structure you know or getting into it and I think Ocean's
+Eight being heist film is absolutely about that there is a whole- -
+there's a long history of heist films and,  
+what ways they do and don't thwart our expectations of the genre which
+is kind of like on a macro level so before we go into it,  
+too far we should probably summarize what Ocean's Eight is,  
+Ocean's Eight is kind of a spiritual sequel to obviously the Ocean's not
+obviously may or may not be obvious is a spiritual sequel to the Ocean's
+film but it's a all,  
+all female ensemble cast and it follows Debbie Ocean who's the younger
+sister off the apparently late Danny Ocean who's the George Clooney
+character in the other films and her former partner in crime Lou and
+their plan is to steal,  
+some jewelry from the Met Gala,  
+that's it and that's kind of more or less their goal is stated very
+early on this is going to be a heist crime,  
+and they're going to be putting together a crack team an A team,  
+of people to go and steal this diamond that's the goal that we're told
 at the beginning and there's not much into personal conflict between any
 of the characters.  
   
-\[24:25\] They kind of all get on the phone and in terms of the villain
+\[24:25\] They kind of all get on the onl- - and in terms of the villain
 and so they're but.  
-But what we're missing is like unlike the oceans film, and you recently
-watched re ratched ocean's, eleven there's, no big kind of quite in
-court and tigris there's, no villain, because there's no casino, the
-closest is thie them.  
-Still, they have to steal the necklace from daphne who's, played by
-what's, the name and hathaway.  
+but what we're missing is like unlike the Oceans filming, and you
+recently watched re-watched Ocean's, Eleven there's, no big kind of
+quote unquote antagonist because there's, no villain, because there's no
+casino, the closest is the- - them.  
+still, they have to steal the necklace from Daphne who's, played by
+what's, her name? Anne Hathaway.  
 And there is and he's, not even really a villain.  
-But he is a personal villain for debbie, which is her ex, corde becker,
-an art dealer who will win out, learn very quickly. Read it her out to
-the police when he was discovered for art fraud, he basically framed her
-as doing all the fraud on his behalf.  
+But he is a personal villain for Debbie, which is her ex, Claude Becker,
+an art dealer who , learn very quickly ratted her out to the police when
+he was discovered for art fraud, he basically framed her as doing all
+the fraud on his behalf.  
   
 **Chas Fisher:**  
-\[25:10\] I think what? Like you said there's a clear golf right? It is
-a clear plot.  
-And yeah, and the heist sequence is very densely micro plotted.  
+\[25:10\] I think what- - like you said there's a clear gulf right? It
+is a clear plot.  
+and yeah, and the heist sequence is very densely micro plotted.  
   
 **Stu Willis:**  
-\[25:16\] Quick call that were told about.  
+\[25:16\] Quick gulf that we are told about.  
   
 **Chas Fisher:**  
-\[25:25\] But i think the big difference between, as he said, i just re
-watch stations at eleven. And i was wanting to find out how similar or
-different was this two oceans eleven in ocean's eleven.  
+\[25:25\] But i think the big difference between, as you said, I just
+re-watched Ocean's Eleven. And I was wanting to find out how similar or
+different was this to Ocean's Eleven in Ocean's eleven.  
   
 \[25:40\] I think. I think there's actually less of ah, villain than
-there is in oceans eight, because andy gus here is only actually really
+there is in Oceans Eight, because Andy Garcia is only actually really
 introduced,  
 halfway through the film, and he doesn't do anything particularly
 villainous.  
 We hear he does villainous things, but we don't see it.  
-The main kind of the reason he's in antagonised is because julie
-roberts, his character danny's, ex wife tess wants to be with him.  
-Right? So is not to me is less of a personal villain.  
-Then i kind of remember his name. But this art dealer who threw debbie
-in jail, you know, claude.  
-So cook, you know, the very first thing that that debbie does almost
+The main kind of the reason he's an antagonist is because Julie Roberts,
+his character Danny's, ex-wife Tess wants to be with him.  
+Right? So he is not- - to me he is less of a personal villain  
+than I can't remember his name. But this art dealer who threw Debbie in
+jail, you know, Claude.  
+So Claude, you know, the very first thing that that Debbie does almost
 when she comes out of jail is to go and, you know, cut buttons off his
-shirt and threatened him with a shiv.  
+shirt and threaten him with a shiv.  
   
-\[27:09\] And then, as he said throughout the film, we find out what
+\[27:09\] And then, as you said throughout the film, we find out what
 what he did to her.  
   
 \[27:35\] And a lot of the plot is about her setting him up for the fall
 for their crime.  
   
 **Stu Willis:**  
-\[27:41\] Well, that's. What emerges, i think ultimately, all these
-films are experienced literally by the audience.  
+\[27:41\] Well, that's what emerges, i think ultimately, all these films
+are experienced linearilly by the audience.  
 Our relationship with the film will change at the end, but the
 revelation of information is very important.  
 We've talked about that a lot and it's specifically and very important
@@ -529,97 +531,97 @@ with all these films, because your relationship with film is experienced
 through that linear relationship.  
 And at the beginning we were told that the goal is to steal this
 necklace, and we're not sure that she's planning to use the boyfriend
-and, in fact, kate blanchett kind of warns her about.  
-Why did you go and see him? You know, he's, a decayed, and then,  
-it's kind of a surprise to us that debbie ocean it's kind of a surprise
-to us that debbie ocean wants to involve him in the plan, because he's
-going she's going to say him up as the date with daphne and everyone's,
+and, in fact, Kate Blanchett kind of warns her about.  
+Why did you go and see him? You know, he's, a dick head, and then,  
+it's kind of a surprise to us that Debbie Ocean it's kind of a surprise
+to us that Debbie Ocean wants to involve him in the plan, because he's
+going she's going to set him up as the date with Daphne and everyone's,
 kind of worried that.  
   
 **Chas Fisher:**  
-\[28:36\] Well, just loaf.  
+\[28:36\] Well, just loathe.  
   
-\[29:06\] Look, i do what i'm trying to boil down to is i think the
-major difference between oceans eight and ocean's eleven is that the
-film itself is less concerned about the heist in oceans eight then it is
-in ocean's eleven.  
-The joy in ocean's eleven is the stakes of breaking into the casino
+\[29:06\] Look, i do what i'm trying to boil down to is I think the
+major difference between Oceans Eight and Ocean's Eleven is that the
+film itself is less concerned about the heist in Oceans Eight than it is
+in Ocean's Eleven.  
+The joy in Ocean's Eleven is the stakes of breaking into the casino are
 really well established, like how hard it's going to be.  
-And then the actual heist sequence is a siri's off payoffs to misdirect,
-as he said, like,  
-in essence, i think ocean's eleven lies to its audience mohr than then
-oceans eight does your in relation to the heist so, you know, a
-particular example is the older character in ocean's eleven soul he's,
+And then the actual heist sequence is a series of payoffs to misdirect,
+as you said, like,  
+in essence, **I** think Ocean's Eleven lies to its audience more than
+than Ocean's Eight does in relation to the heist so, you know, a
+particular example is the older character in Ocean's Eleven Saul he's,
 he's like,  
-eastern european steal a pretender.  
-But you've got a lot of scenes leading up to the highest where he's like
-feeling faint and looking like he's gonna have a heart attack and all
+eastern European arms dealer pretender.  
+But you've got a lot of scenes leading up to the heist where he's like
+feeling faint and looking like he's going to have a heart attack and all
 those kind of things.  
 And then during the heist, he does actually have a heart attack.  
-And so the film has made you think all shit. Is this something going
-wrong? Was that supposed to happen?  
+And so the film has made you think "oh shit is this something going
+wrong? Was that supposed to happen?"  
 And then it turns out it was part of the heist.  
   
 **Stu Willis:**  
-\[30:19\] It's. Using your general your expectations of the genre, which
+\[30:19\] It's using your genre- -your expectations of the genre, which
 is, you know, if we see the plan it's going to go wrong, if we don't see
-the plan, then it's going to go right?  
-That's, kind of the rule of thumb, but ocean's eleven plays with that
-and it's. Like. Just because we've been told the plan doesn't mean it's
-the actual planets. Just what they've told us all told the people
+the plan, then it's going to go right.  
+That's, kind of the rule of thumb, but Ocean's Eleven plays with that
+and it's like just because we've been told the plan doesn't mean it's
+the actual plan. it's just what they've told us or told the people
 they're going along with.  
   
 **Chas Fisher:**  
-\[30:40\] On the real satisfaction at the end is that the what we were
-told was that was the plan was never the plan.  
+\[30:40\] And the real satisfaction at the end is that the what we were
+told was the was the plan was never the plan.  
 And that everything that happened was planned.  
   
 **Stu Willis:**  
-\[30:48\] No. So in a way, ocean's eleven is doing exactly what you
-know. It's a versus audience film.  
+\[30:48\] To me in a way, Ocean's Eleven is doing exactly what you know
+it's a versus audience film.  
   
 **Chas Fisher:**  
-\[30:49\] But and that.  
+\[30:49\]  
   
-\[30:53\] In a in a different way to oceans that because oceans a. The
-plan is not carefully laid out for us, right?  
-S o we don't know when the plan is going wrong.  
-It's. Not actually about the heist when we're in the high sequence,
-there's.  
-Lots of micro points of attention, one the only one that i can really
+\[30:53\] In a in a different way to Ocean's Eight because Ocean's Eight
+the plan is not carefully laid out for us, right?  
+So we don't know when the plan is going wrong.  
+It's not actually about the heist when we're in the heist sequence,
+there's  
+lots of micro points of tension, one the only one that i can really
 remember.  
-That's. A very kind of plot tense bit of the heist is when the mindy k
-ll ng characters in a toilet, like dismantling the jewels and replacing
-them with zirconium and there's.  
-Ah, like an israeli hitman approaching the door, right?  
+that's **a** very kind of plot tense bit of the heist is when the Mindy
+Kalling character is in a toilet, like dismantling the jewels and
+replacing them with zirconium and there's a  
+, like an Israeli hit man approaching the door, right?  
   
 **Stu Willis:**  
-\[31:31\] Oh, god, yeah, yeah, extend.  
+\[31:31\] \[unintelligible 00:31:31\].  
   
 **Chas Fisher:**  
 \[31:33\] But other than that, the the heist seems to go exactly as they
-wanted to without us, knowing whether that was the plan or not. Right.  
+wanted to without us, knowing whether that was the plan or not right?  
 And then the last sequence of the film is actually kind of the aftermath
-off the of the heist.  
+of the of the heist.  
   
 **Stu Willis:**  
-\[31:55\] It's again, using your expectation because you like, oh, i
-thought they just one why's. The film still going?  
+\[31:55\] It's again, using your expectation because you like, oh, I
+thought they've just won why is the film still going?  
   
 **Chas Fisher:**  
 \[31:57\] Yeah.  
   
-\[32:00\] So that was to me the major difference between oceans and
-oceans.  
-Eleven is that there is there are micro obstacles, like every single
-scene in the film, even the initial like scenes of bringing the ah, you
-know, bringing the team together.  
-There's. All these, like each individual scene, has a goal, has
+\[32:00\] So that was to me the major difference between Oceans Eight
+and Oceans Eleven  
+is that there is there are micro obstacles, like every single scene in
+the film, even the initial like scenes of bringing the a, you know,
+bringing the team together.  
+There's all these, like each individual scene, has a goal, has
 antagonism, obstacles to be overcome, and they do.  
 But there doesn't seem to be this overarching drive towards anything,
 and i'm not saying that as criticism, it's, that this is what i actually
 think is quite astounding about the film.  
-The film is just the joy off being with these characters.  
+The film is just the joy of being with these characters.  
   
 **Stu Willis:**  
 \[32:41\] It's simply a hangout show. But i think you're underselling
@@ -628,233 +630,232 @@ because there's obstacles or there's moments of surprise and revelation,
 which again is of audience thing.  
 So you know you've got probably one that stuck out to me the most,  
 as an example of this is when they need to basically go and get a
-photograph of the necklace the three d with these fancy cameras to get
-so they could build a replica of it.  
-And they send helen bahama carter's character, whose name escapes me
-rose.  
-Yet euros who's, a disgrace to fashion designer and amita, whose theme
+photograph of the necklace the 3D with these fancy cameras to get so
+they can build a replica of it.  
+And they send Helen Bonham Carter's character, whose name escapes me
+Rose.  
+Yes Rose who's, a disgraced fashion designer and amita, whose theme
 indicating character to go and get the photographs off the necklace and
 essentially there's a few characters in there that work for the.  
   
-\[33:29\] You work for kati air and then to get the photos and basically
+\[33:29\] work for Cartier and then to get the photos and basically
 there's, not and it's, you know it's, a spy gadget glasses will will do
 the model and the down man. They don't have reception.  
   
-\[34:37\] And that's, a small micro, as you say, microbe plotted sane
-but it's still the same with obstacles. So i'm not saying that this film
-was without conflict at all.  
-It's, without interpersonal conflict and it's out and it's not
-necessarily sequence level, i guess on one level there is a sense of
-pressure of like we need to get a lash it together before the met
-gala.  
+\[34:37\] And that's, a small micro, as you say, microbe plotted scene
+but it's still the same with obstacles. So I'm not saying that this film
+is without conflict at all.  
+It's, without interpersonal conflict and it's a and it's not necessarily
+sequence level, I guess on one level there is a sense of pressure of
+like we need to get all our shit together before the Met Gala.  
 But you never really feel the time pressure. They could have pushed it
 more if they wanted to.  
 The biggest obstacle, which is kind of the mid point.  
 Just before the heist, as we learned that there's a special magnetic
 lock on the necklace that they thought they could just do a sleight of
-hand and take it off on dh hathaway's, nick and turns out of uses some
-special magnetic walk.  
-But then there's just a small sequence where it turns out that rihanna's
-bad ass sister could make them and i'm locking mechanism.  
-But it does like this is a structure is that we need to do this. But
+hand and take it off Anne Hathaway's, neck and turns out it uses some
+special magnetic lock.  
+But then there's just a small sequence where it turns out that Rihanna's
+bad ass sister could make them an unlocking mechanism.  
+But it does like this is a structure is that we need to do this but
 this, therefore we make a decision to do that.  
-You know it. Almost every single saying. If not every single scene has
+You know if for almost every single scene if not every single scene has
 that.  
   
 **Chas Fisher:**  
-\[35:34\] But my, my, my broader point is. What is impressive about it
-is it is not doing the,  
-the hero's journey and it's not even doing you know, what is thie, as
-you say, the genre convention of heist movies, which has almost been
-reestablished by ocean's. Eleven.  
+\[35:34\] But my, my, my broader point is what is impressive about it is
+it is not doing the,  
+the hero's journey and it's not even doing you know, what is the, as you
+say, the genre convention of heist movies, which has almost been
+reestablished by Ocean's Eleven.  
 So it's almost subverting that by saying, we're not going to tell you
-what the plan is when they're not goingto, you know, subvert what you
-think that the plan was, although they kind of slightly due at the end
+what the plan is when they're not going to, you know, subvert what you
+think that the plan was, although they kind of slightly do at the end
 with the big reveal.  
-But as in there were stealing something else other than the cartier
+But as in they were stealing something else other than the Cartier
 necklace.  
-Yeah, that is basically sustained through micro conflict on a on a scene
-level.  
+but yeah, that is basically sustained through micro conflict on a on a
+scene level.  
   
 **Stu Willis:**  
-\[36:16\] And our relationship with wanting to know how they're gonna
+\[36:16\] And our relationship with wanting to know how they're going to
 pull it off.  
 So when they pull off the heist, we don't have all the information. We
-just got the bigger beats of it and it's, like all the trying to conform
-it. Okay, what are you doing? Okay, okay, you know, these characters
-air, completely aware of what the plan is. We're not right.  
-And so part of the joys is that those connected moments when we as an
+just got the bigger beats of it and it's, like "oh they are trying to
+conform it. Okay, what are they doing? Okay, okay, you know, these
+characters are, completely aware of what the plan is. We're not right?  
+And so part of the joy is that- - those connected moments when we as an
 audience go one plus one equals two, that we have those sparking moments
 that exists.  
 Those moments exist purely for our pleasure, rather than a like a that
 moment of revelation, that closing of the information gap, the
 correction of point of view, we're catching up to these characters. So
-much of this film is about us being behind the character.  
+much of this film is about us being behind the characters.  
   
 **Chas Fisher:**  
-\[36:58\] Yeah, and i think i want to make that broad point.  
-Unlike ocean's, eleven, where the film is deliberately misdirecting you,
-i don't feel that this film is deliberately misdirecting you, it's it's.
-The way that is playing with us. An audience is through p o v.  
-You know, we've done whole episode's on micro usage of p r v and then
-macro use of p o v and that's. What it's doing here? It's constantly
-withholding information and then letting you catch up to the
-characters.  
+\[36:58\] Yeah, and I think I want to make that broad point.  
+Unlike Ocean's, Eleven, where the film is deliberately misdirecting you,
+I don't feel that this film is deliberately misdirecting you, it's it's
+the way that it's playing with as an audience is through POV.  
+You know, we've done whole episode's on micro use of POV and then macro
+use of POV and that's what it's doing here? It's constantly withholding
+information and then letting you catch up to the characters.  
   
 **Stu Willis:**  
-\[37:27\] And the and the biggest withholding information is in the
-spoiler. Spoiler spoilers.  
-What is more or less the final sequence of the film? It feels like a
-foreign film.  
-But it's, not it's. Like a three act, i guess, because there's the
-planning of the highest, the highest in the aftermath.  
-And there is a sequence level antagonised, which is james corden's as
-john fraser who's, the insurance for investigator.  
+\[37:27\] And the biggest withholding information is in the spoiler
+spoiler spoilers.  
+What is more or less the final sequence of the film. It feels like a
+four act film.  
+But it's, not it's like a three act, I guess, because there's the
+planning the heist, the heist in the aftermath.  
+And there is a sequence level antagonist, which is James Corden's as
+John Fraser who's, the insurance fraud investigator.  
   
-\[38:02\] So james corden comes along he's the insurance in ford
-investigator trying to make sure that career isn't doing a dodgy for
-this one hundred fifty million dollars secrets,  
+\[38:02\] So James Corden comes along he's the insurance fraud
+investigator trying to make sure that Cartier isn't doing a dodgy for
+this one hundred fifty million dollars necklace,  
 that's putting on pressure on the characters in the final sequence but
-this is something they do in logan lucky when they hear hilary swank
-carry two comes along the way it's like the little miss sunshine,  
-boss of the off them beauty pageant pageant being like a sequence level
-antagonised for the final sequence james corden they're putting on
-pressure and we learned through his investigation is he kind of pulls
-the noose around them following the threads that.  
+this is something they do in Logan Lucky when the Hilary Swank character
+comes along the way it's like the little miss sunshine,  
+parts of the- - of the beauty pageant pageant being like a sequence
+level antagonist for the final sequence James Corden there putting on
+pressure and we learned through his investigation as he kind of pulls
+the noose around them following the threads that  
   
 **Chas Fisher:**  
 \[38:22\] Yeah.  
   
 **Stu Willis:**  
-\[38:37\] The plan is to actually frame called becca and ultimately what
-happens which makes us go is,  
-much to our disappointment debbie ocean kind of gives over every well
-just give over everything she framed him and gives away all the money
-and we're like oh why did she do that,  
-and it turns out that there was a highest within the highest which were
-having explained that the very we have very explained it the very in
-that really the whole thing itself was a magic trick to make,  
+\[38:37\] the plan is to actually frame Claude Becker and ultimately
+what happens which makes us go is,  
+much to our disappointment Debbie Ocean kind of gives over every- - well
+just give over everything she frames him and gives away all the money
+and we're like "oh why did she do that?,  
+and it turns out that there was a heist within the heist which we are
+having explained at the very have very explained at the very end that
+really the whole thing itself was a magic trick to make,  
 a distraction of sleight of hand to make everyone focus on this
-disappeared cardio nicholas whether i,  
-rub the metmuseum and with what's his face from the oceans film,  
-the whole film is a sleight of hand we've been lied to their goal we've
-told the goal of beginning is to steal the necklace. Turns out the goal
-wasn't.  
-The goal was to steal the necklace in order to find the boyfriend.
-Distract everyone from them, stealing all these wild jobs. That's.  
+disappeared Cartier necklace where they,  
+rob the Met museum and with what's his faced from the Ocean's film,  
+the whole film is a sleight of hand we've been lied that their goal- -
+we've been told the goal at the beginning is to steal the necklace.
+Turns out the goal wasn't.  
+The goal was to steal the necklace in order to frame the boyfriend and
+distract everyone from them, stealing all these wealth of jewels that's
+it.  
   
 **Chas Fisher:**  
 \[39:36\] Can i? Can i do? I like i want to make one point.  
-Is that where i feel like this film lost?  
-Seem there was. There was definite pleasure in watching the james corden
-sequence, but i felt like because they've gotten away with the heist of
-the cardia necklace at that point, and they had gotten away with it. No
-one.  
-There was no chance of them being caught, right? James cordon was
+Is that where i feel like this film lost  
+seem there was. There was definite pleasure in watching the James Corden
+sequence, but i felt like because they''d gotten away with the heist of
+the Cartier necklace at that point, and they had gotten away with it. No
+one- -  
+there was no chance of them being caught, right? James Cordon was
 investigating, but it wasn't like you felt at any point he was closing
-in, and anyone was that that debbie wasn't in control of the
+in, and anyone was that that Debbie wasn't in control of the
 situation.  
   
-\[40:55\] So there was a definite while. It's subverted the expectations
-of the genre to carry on the film.  
-After they pulled off the heist, there was a definite feeling, like the
-film took off its foot off the gas. But because there was no riel steaks
-and.  
+\[40:55\] So there was a definite- -while it subverted the expectations
+of the genre to carry on the film  
+after they pulled off the heist, there was a definite feeling, like the
+film took off its foot off the gas because there was no real stakes
+and-.  
   
 **Stu Willis:**  
 \[41:13\] Well, she ends up having a meeting. Debbie ends of having a
-meeting with james corden. There's like ego, and so against it, takes
-the stake. Someone like, okay, what's the plan. Now, we're once again
-catching up to where she is that we're behind, and then we then we want
-to want.  
+meeting with James Corden. There's like ego, and so against it, takes
+the stake and we are like, okay, what's her plan now, we're once again
+catching up to where she is at we're behind, and than we than we want to
+want.  
   
 **Chas Fisher:**  
 \[41:26\] Yeah, yeah, and that's and that's is making us lean forward is
 making us curious. But there's, no stakes there.  
   
 **Stu Willis:**  
-\[41:31\] Yeah, and maybe that's. What people are reacting to that the
+\[41:31\] Yeah, and maybe that's what people are reacting to that the
 stakes, once it goes into that, feels low.  
-The other observation i'm going to make now is that there's no big. If
+The other observation i'm going to make now is that there's no big- - if
 we're saying that it's about pressuring his character to make choices,
-particular to make choices that they wouldn't have otherwise make, it
-doesn't feel like there's, only big choice for debbie or any of them.  
-At the very end, the choice could have been that maybe she decides not
-to darby in her closet into drug pleasure.  
+particularly to make choices that they wouldn't have otherwise make, it
+doesn't feel like there's, any big choice for Debbie or any of them at  
+the very end, the choice could have been that maybe she decides not to
+Debbie and Claude into drug pleasure.  
 You know all that she's got some other, you know, difficult choice, you
 know, but she doesn't there's, no actual, difficult choice for her at
 the end.  
   
 **Chas Fisher:**  
-\[42:06\] Yeah, absolutely. And, well, there's, none that there's no
+\[42:06\] Yeah, absolutely. And, well, there's, none there's no
 character development, really, for any of the characters, they're not
 changed.  
 I mean, some of them want money, but none of them. It feels like other
-than aquafina is character need money, like when we're introduced to
+than Awkwafina's character need money, like when we're introduced to
 them, they're all kind of perfectly happy, you know, the.  
   
 **Stu Willis:**  
-\[42:27\] Well, maybe mindy kaling's character. Maeda feels like she
+\[42:27\] Well, maybe Mindy Kaling's character Amita feels like she
 might need money.  
   
 **Chas Fisher:**  
-\[42:30\] Yeah, yeah, she's. You know, the thing that got her onboard. I
-mean, she's, the only one where it felt like she had a really
-convincing, risk. Convincing reason to come on board.  
-The heist was to move out from being with a month.  
+\[42:30\] Yeah, yeah, she's. You know, the thing that got her onboard- -
+I mean, she's, the only one where it felt like she had a really
+convincing, risk- - **c**onvincing reason to come on board.  
+for theist to move out from being with her mom.  
   
 **Stu Willis:**  
-\[42:42\] Yeah, so there's. A lot of enjoyment of the film, but it's
+\[42:42\] Yeah, so there's look a lot of enjoyment in the film, but it's
 about it, pulling the rug over the audiences.  
-Eyes, you know, like deliberately missed eighties of misdirection. The
+Eyes, you know, like deliberately missed- -it is a misdirection. The
 whole film itself is a misdirection.  
   
 **Chas Fisher:**  
-\[42:55\] Yes, but i think i feel and i'm you know so we've got this
-regular listener ben who i think was really frustrated by this film and
-i got what he was saying which is,  
+\[42:55\] Yes, but I think I feel and I'm you know so we've got this
+regular listener Ben who I think was really frustrated by this film and
+I got what he was saying which is,  
 the misdirect that they were actually stealing the jewels he personally
 saw it a mile off like as soon as they saw that the jewels were in the
-museum is like oh that's what they're really stealing so he didn't get
-that sense of satisfaction from the reveal at the end of the film,  
-i didn't have that pick up but to me i didn't even really care at that
+museum it's like "oh that's what they're really stealing" so he didn't
+get that sense of satisfaction from the reveal at the end of the film,  
+I didn't have that pick up but to me i didn't even really care at that
 point either,  
-them realizing that they'd stolen the jewels from the met wasn't all
+them realizing that they'd stolen the jewels from the Met wasn't all
 that,  
-wasn't what satisfied me about the film i guess because yeah it never
+wasn't what satisfied me about the film I guess because yeah it never
 felt like.  
   
-\[43:42\] I guess what i feel like i'm sounding really critical of this
-film and what i actually want people to go when do is watch it to marvel
-that here is a film that is made a satisfying interesting ah experience
+\[43:42\] I guess what I feel like I'm sounding really critical of this
+film and what I actually want people to go and do is watch it to marvel
+at here is a film that has made a satisfying interesting experience
 almost,  
-bye from scene to scene rather than looking at the overall,  
+by from scene to scene rather than looking at the overall,  
 aspect of it because the heist was,  
-so secondary and and i think your your main point is a fantastic one
-like the main tool that it uses teo,  
+so secondary and and I think your your main point is a fantastic one
+like the main tool that it uses to,  
 create conflict between the film and the audience and also to maintain
-audience interest is using p o v the audiences constantly behind the
+audience interest is using POV the audience is constantly behind the
 film and it's just letting us catch up,  
-ever so regularly, just to keep us tagged it.  
-Keep us keep. Take her, keep bringing us along with it, keeping us
+ever so regularly, just to keep us tagged.  
+Keep us keep tagged keep bringing us along with it, keeping us
 engaged.  
   
 **Stu Willis:**  
-\[44:33\] Yeah, even just looking at the open sequins with debbie coming
-out of prison and she's got not much and she's like old sort of out and
-it's the pleasure of watching her, um,  
-enact the plan ofthe how she ends up staying in hotel that's it it's,  
-actively hostiles not perhaps the right, but i think it's like it's
-actively hostile and they're making a conscious decision that debbie
-doesn't walk in and go, i'm gonna stay in this. This is my planet. This
-is what i'm going to do.  
-We get to watch it unfold and you can't or you don't maintain that point
+\[44:33\] Yeah, even just looking at the open sequence with Debbie
+coming out of prison and she's got not much and she's like old sort of
+out and it's the pleasure of watching her, um,  
+enact the plan of the how she ends up staying in hotel that's it it's,  
+actively hostile is not perhaps the right word, but I think it's like
+it's actively hostile and they're making a conscious decision that
+Debbie doesn't walk in and go, I'm going to stay in this. This is my
+plan and this is what I'm going to do.  
+We get to watch it unfold and you can't or you can't maintain that point
 of view because audiences do get frustrated.  
-But this film, once you catch up, if that's what she's trying to do
-that's what she's trying to do? Isn't she clever? Isn't she clever?  
+But this film, once you catch up, that's what she's trying to do that's
+what she's trying to do**.** Isn't she clever? Isn't she clever?  
 Isn't she clever, she's super competent and it makes the film, as you
 say, enjoyable from moment to moment surprised it gives us all these
-constant surprises and jokes are often surprises, you know, in this
+constant surprises and jokes are often surprises, you know, and this
 film, to me is very funny, you know,  
 um it's, a film structured around surprise rather than,  
 well, revelation, but not suspense like we're not massively ahead.  
@@ -862,7 +863,7 @@ well, revelation, but not suspense like we're not massively ahead.
 **Chas Fisher:**  
 \[45:36\] Yeah, yeah, that's, that's a that's. It. I think you just hit
 the nail on the head.  
-Unlike, i think, ocean's eleven and other heist films, it isn't about
+Unlike, I think, Ocean's Eleven and other heist films, it isn't about
 suspense. It's about surprise.  
   
 **Stu Willis:**  
@@ -870,52 +871,65 @@ suspense. It's about surprise.
   
 **Chas Fisher:**  
 \[45:51\] So that was our fluffy entry into how you know films can, you
-know, have less into personal or plot antagonism.  
-And in that absence, the film is more than agnes.  
+know, have less int**er**personal or plot antagonism.  
+And in that absence, the film is more the antagonist.  
   
 **Stu Willis:**  
 \[46:07\] So i think this is a good opportunity to go to the most common
 genre.  
-I think for this kind of act of hostility, his thrillers and
-psychological feelers that play with time, that kind of puzzle films.  
-In a way, i think, probably, for most audience, most of what most of
-audio warning says most writers listening to this, they're more likely
-to write one of those then been Sans Soleil, or, if it's, a fight on
-dh.  
-So i think that, and it builds on the kind of techniques that you've
-seen that we've seen in oceans eight, which is point of view and what
+I think for this kind of act of hostility, it's thrillers and
+psychological thrillers that play with time, thIat kind of puzzle
+films.  
+In a way,I think, probably, for most audience, most- - not most of
+audiences most writers listening to this, they're more likely to write
+one of those then Sans Soleil, , F For Fake.  
+So I think that, and it builds on the kind of techniques that you've
+seen that we've seen in Oceans Eight, which is point of view and what
 character's point of view.  
-And so i think, thiss basically made try awkwardly.  
+And so i think, this basically made \[unintelligible 00:46:45\]
+awkwardly.  
   
-\[46:48\] Awkward internal organ. My awkward. I'm trying a awkward
-into.  
+\[46:48\] Awkward I'm trying to awkward my awkward. I'm trying a awkward
+into the second.  
   
 **Chas Fisher:**  
-\[48:14\] So the second is a nostra, aliens, a recent australian
+\[48:14\] So the second is an Australian, , a recent Australian
 release.  
-It is, as you say, sue, a thriller. It's, set in a remote but very
-beautiful, expensive house in rural queensland, feels very sort of
-outback e,  
-on dh deals with,  
+It is, as you say, is to, a thriller. It's, set in a remote but very
+beautiful, expensive house in rural Queensland, feels very sort of
+outbackie,  
+and deals with,  
 a writer, her publisher and her,  
 muse, as she's credited and the kind of psycho sexual tensions and
 reveals of back stories and lies and deceit, as they all kind of slowly,
 mentally unravel.  
   
 **Stu Willis:**  
-\[48:56\] It's good summary, chazz.  
+\[48:56\] It's good summary, Chas.  
   
 **Chas Fisher:**  
-\[48:57\] Why, thank you. I feel like e mean soon may cut this in the
-edit. But i have tio kind of declare my interest here, where i'm working
-with the producer of the film. On another project on, i got to read.  
+\[48:57\] Well, thank you. I feel like I mean Sue may cut this in the
+edit. But i have to kind of declare my interest here, where i'm working
+with the producer of the film. On another project and, I got to read.  
   
 **Stu Willis:**  
-\[49:10\] I'm i have that's what it's like. Rather than just saying, i
-read the script for the producer, like i'm working with the producer.  
+\[49:10\] And i kind of have that's what it's like rather than just
+saying, **I** read the script for the producer, like I'm working with
+the producer.
+
+<div>
+
   
-\[50:11\] What's important tonight is. The film is very essentially
-concerned about lying depp.  
+
+</div>
+
+<div>
+
+Chas Fisher: Well no because that's my second point of conflict which
+is-  
+  
+\[50:11\] What's important tonight is the film is very essentially
+concerned about lying deep.  
   
 \[50:22\] What is? I think it must be. The kind of turning point is this
 idea that the office book was a memoir, and it was kind of saucy and
@@ -2605,5 +2619,7 @@ find links to our patron. Page. Two.
 Support us getting these episodes to you. Quicker, thanks. And thanks
 for listening.  
   
+
+</div>
 
 </div>
